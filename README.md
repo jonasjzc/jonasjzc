@@ -30,4 +30,4 @@ falla entiendo las tres capas y no solo una.
 
 ---
 
-**[Ver más →](https://jonasjzc.github.io/)**
+**[LinkedIn](https://www.linkedin.com/in/jonatan-zu%C3%B1iga-2a3159229) · [GitHub](https://github.com/jonasjzc) · [Ver más →](https://jonasjzc.github.io/)**
